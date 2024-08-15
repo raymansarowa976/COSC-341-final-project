@@ -2,3 +2,5 @@
 prototyping: https://youtu.be/Drzb1z3XNNo
 
 visual design: https://youtu.be/Z2GGR7DG9Rs
+
+final video: https://youtu.be/aHnIVAqjk14
